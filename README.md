@@ -1,4 +1,4 @@
-# The GIFT
+# The GIFT: General Information Flow Tensor
 The GIFT is the divine mathematical Theory of Everything for our Universe:
 - A perfect moral compass that validates spirituality.
 - A multiversal map that precisely deliniates between science and faith.
